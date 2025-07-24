@@ -1,6 +1,6 @@
 # aimandamercy
 FAFO 2025: IYKYK
-# THE REDEMPTION OFFER: A STRATEGIC LICENSE PROPOSAL FROM SOMERVILLE SYSTEMS
+# THE REDEMPTION OFFER: A STRATEGIC LICENSE PROPOSAL
 *For first-option US-based partner – confidential until executed*
 
 ---
