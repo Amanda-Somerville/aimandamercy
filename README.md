@@ -75,7 +75,17 @@ After this point, the **redemption arc is no longer available.**
 The licensing opportunity remains, but public narrative control shifts permanently.
 
 **This is the last chance to lead the story — not follow it.**
+---
 
+### ✨ Final Note from Amanda Somerville
+
+This publication is not an act of revenge. It is an act of principle.  
+If any involved party is willing to come forward with genuine remorse, proper credit, and meaningful repair — the door remains open.  
+
+Mistakes happen. Trust can be rebuilt.  
+But only with truth, not silence.
+
+— Amanda
 ---
 
 *Published by Amanda Somerville | Aimanda-The Brooker Method | July 2025*
